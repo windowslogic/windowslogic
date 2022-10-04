@@ -1,4 +1,6 @@
-### Welcome to my GitHub! 💜
+## Welcome to my GitHub! 💜
+
+### Alethila (pronounced: ale-the-la)
 
 - 💖 Pronouns: He/Him/She/Her
 - 🌐 Owner of WindowsLogic Productions.
