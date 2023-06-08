@@ -2,8 +2,8 @@
 
 ### Alethila (pronounced: ale-the-la)
 
-- 💖 Pronouns: He/Him/She/Her
-- 🌐 Owner of WindowsLogic Productions (Start-up).
+- 💖 Pronouns: Any
+- 🌐 Founder/CEO of WindowsLogic Productions (Start-up).
 - 📚 Three distinctions in BTEC Level 3 IT.
 - 🖥️ Too much home server space (25 TB).
 - 💛 Fun facts: I like ponies and programmer socks.
