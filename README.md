@@ -1,6 +1,6 @@
 ## Welcome to my GitHub! 💜
 
-### Alethila (pronounced: ale-the-la)
+### Alethila (pronounced: ale-thee-la)
 
 - 💖 Pronouns: She/Her
 - 🌐 Founder/CEO of WindowsLogic Productions (Start-up).
