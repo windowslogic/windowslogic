@@ -5,7 +5,7 @@
 - 💖 Pronouns: She/Her
 - 🌐 Founder/CEO of WindowsLogic Productions.
 - 📚 Three distinctions in BTEC Level 3 IT.
-- 🖥️ Too much home server space (40 TB).
+- 🖥️ Too much home server space (60 TB).
 - 💾 44 TB of offline storage.
 - 💛 Fun facts: I like ponies.
 - 📫 Feel free to contact me!
